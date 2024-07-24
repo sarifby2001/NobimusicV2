@@ -1,9 +1,9 @@
 <h2 align="center">
-    ──「 ᴛᴍᴍ ꭙ ᴍᴜsɪᴄ 」──
+    ──「 ALONE ꭙ ᴍᴜsɪᴄ 」──
 </h2>
 
 <p align="center">
-  <img src="https://te.legra.ph/file/de0a77bb3b8d58b7338e4.jpg">
+  <img src="https://i.ibb.co/mDj5zL9/632a97e8eff6.jpg">
 </p>
 
 <p align="center">
